@@ -47,6 +47,45 @@
       + Xếp hạng năng lực cạnh tranh quốc gia của Việt Nam do **Diễn đàn Kinh tế Thế giới (WEF)** công bố cho năm **2015–2016**, Việt Nam đứng rất thấp trong khu vực và chỉ đứng thứ 56 trên tổng số 144 nền kinh tế. Nền quản lý hành chính lạc hậu, nhiều thủ tục rườm rà gây ảnh hưởng tiêu cực nghiêm trọng đến năng lực cạnh tranh, chi phí về thời gian và tiền bạc của doanh nghiệp Việt Nam, đơn cử như việc các doanh nghiệp Việt Nam cần đến 872 giờ/năm để đóng thuế trong khi con số bình quân của dịch vụ đó ở các nước ASEAN-6 chỉ là 172 giờ/năm. Thực tế này cho thấy, cải cách thể chế, tái cơ cấu kinh tế, **nâng cao trình độ khoa học – công nghệ** và năng lực cạnh tranh đang là đòi hỏi cấp thiết đặt ra cho Việt Nam trong giai đoạn tới.
       + Tính đến năm 2020, Việt Nam đã thiết lập quan hệ ngoại giao với 189 quốc gia và là thành viên của nhiều tổ chức quốc tế, trong đó nổi bật như: **Liên Hợp Quốc**, **Hiệp hội các quốc gia Đông Nam Á (ASEAN)**, **Diễn đàn Hợp tác Kinh tế Châu Á – Thái Bình Dương (APEC)** và **Tổ chức Thương mại Thế giới (WTO)**.
 
+# Thời kỳ nguyên sử
++ Hồng Bàng
++ Nhà Thục (257–208 TCN, hoặc 207–179 TCN)
++ Nhà Triệu (204–111 TCN)
+
+# Bắc thuộc lần I, II và III
++ Trưng Nữ Vương (40–43)
++ Nhà Tiền Lý và Triệu Việt Vương (544–603)
++ Họ Mai (713–723)
++ Họ Phùng (779–791)
+
+# Thời kỳ tự chủ lần thứ nhất
++ Họ Khúc (905–923) hoặc (905–930)
+
+# Thời kỳ tự chủ lần thứ hai
++ Họ Dương (931–937)
++ Họ Kiều (937–938)
+
+# Thời kỳ độc lập
++ Nhà Ngô và Dương Tam Kha (939–966)
++ Nhà Đinh (968–980)
++ Nhà Tiền Lê (980–1009)
++ Nhà Lý (1009–1225)
++ Nhà Trần (1225–1400)
++ Nhà Hồ (1400–1407)
+
+# Chống Bắc thuộc lần IV
++ Nhà Hậu Trần (1407–1414)
++ Khởi nghĩa Lam Sơn (1418–1427)
+
+# Thời kỳ tái độc lập
++ Nhà Hậu Lê – giai đoạn Lê sơ (1428–1527)
+
+# Thời kỳ chia cắt
++ Bắc triều – Nhà Mạc (1527–1592) và thời kỳ Cao Bằng (1592-1683)
++ Nam triều – Nhà Hậu Lê – giai đoạn Lê Trung hưng (1533–1789)
++ Đàng Ngoài - Chúa Trịnh (1545-1787)
++ Đàng Trong - Chúa Nguyễn (1558-1777)
+
 # Triều Nguyễn
 + Triều đại Phong kiến cuối cùng ở Việt Nam, đã tồn tại trong suốt hơn 143 năm (1802-1945) với 13 đời vua Nguyễn, 9 chúa Nguyễn
 + Vua Gia Long (1802-1819)*
