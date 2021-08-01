@@ -4,6 +4,75 @@
 + Thời kỳ Bắc thuộc (179 TCN–938)
 + Thời kỳ quân chủ (939–1945)
 + Thời kỳ hiện đại (1858–nay)
+
+## Thời kỳ tiền sử
++ Hồng Bàng
++ Nhà Thục (257–208 TCN, hoặc 207–179 TCN)
++ Nhà Triệu (204–111 TCN)
+
+## Bắc thuộc lần I, II và III
++ Trưng Nữ Vương (40–43)
++ Nhà Tiền Lý và Triệu Việt Vương (544–603)
++ Họ Mai (713–723)
++ Họ Phùng (779–791)
+
+## Thời kỳ tự chủ lần thứ nhất
++ Họ Khúc (905–923) hoặc (905–930)
+
+## Thời kỳ tự chủ lần thứ hai
++ Họ Dương (931–937)
++ Họ Kiều (937–938)
+
+## Thời kỳ độc lập
++ Nhà Ngô và Dương Tam Kha (939–966)
++ Nhà Đinh (968–980)
++ Nhà Tiền Lê (980–1009)
++ Nhà Lý (1009–1225)
++ Nhà Trần (1225–1400)
++ Nhà Hồ (1400–1407)
+
+## Chống Bắc thuộc lần IV
++ Nhà Hậu Trần (1407–1414)
++ Khởi nghĩa Lam Sơn (1418–1427)
+
+## Thời kỳ tái độc lập
++ Nhà Hậu Lê – giai đoạn Lê sơ (1428–1527)
+
+## Thời kỳ chia cắt
++ Bắc triều – Nhà Mạc (1527–1592) và thời kỳ Cao Bằng (1592-1683)
++ Nam triều – Nhà Hậu Lê – giai đoạn Lê Trung hưng (1533–1789)
++ Đàng Ngoài - Chúa Trịnh (1545-1787)
++ Đàng Trong - Chúa Nguyễn (1558-1777)
++ Nhà Nguyễn Tây Sơn (1778-1802)
+
+## Triều đại Phong kiến cuối cùng ở Việt Nam
++ Triều Nguyễn là triều đại Phong kiến cuối cùng ở Việt Nam, đã tồn tại trong suốt hơn 143 năm (1802-1945) với **13 vua** và **9 chúa**
++ **Vua Gia Long** (1802-1819)*
+  + Ngày 1-2-1802, Nguyễn Phúc Ánh lên ngôi Hoàng đế ở Phú Xuân, lấy niên hiệu là Gia Long, chính thức lập nên triều đại nhà Nguyễn. Tháng 3 năm 1804, vua Gia Long đổi quốc hiệu nước ta là **Việt Nam**.
++ **Vua Minh Mạng** (1820-1840)
+  + Cho bỏ các dinh và trấn mà **thành lập các tỉnh** (cả nước được chia làm 31 tỉnh)
+  + Nhà vua cho **lập Quốc Tử Giám**, mở thêm **kỳ thi Hội và thi Đình** (thời Gia Long chỉ có thi Hương).
+  + Lãnh thổ Việt Nam dưới thời Minh Mạng được mở rộng nhất trong lịch sử và Việt Nam thực sự trở thành một quốc gia hùng mạnh. Vì vậy vào năm 1838, vua Minh Mạng cho đổi tên nước ta là **Đại Nam**.
++ Vua Thiệu Trị (1841-1847)
++ Vua Tự Đức (1848-1883)
+  + Vua Tự Đức không con, ông nhận 3 người cháu gọi bằng chú làm con nuôi là: Nguyễn Phúc Ưng Chân (sau này là vua Dục Đức); Nguyễn Phúc Ưng Đường (sau này là vua Đồng Khánh); Nguyễn Phúc Ưng Đăng (sau này là vua Kiến Phúc).
++ Vua Dục Đức (1883, 3 ngày)
++ Vua Hiệp Hòa (1883, 4 tháng)
++ Vua Kiến Phúc (1883-1884)
++ Vua **Hàm Nghi** (1884-1885)*
+  + Binh biến năm Ất Dậu (5-7-1885) xảy ra, vua Hàm Nghi cùng quần thần ra Tân Sở, phát hịch **Cần Vương**, phát động phong trào kháng Pháp trên toàn quốc.
++ Vua Đồng Khánh (1886-1888)
++ Vua Thành Thái (1889-1907)
+  + Vua Thành Thái là người có tư tưởng tiến bộ (cắt tóc ngắn, lái ô tô, xuồng máy) và có tư tưởng chống Pháp.
++ Vua **Duy Tân** (1907-1916)
+  + Vua Duy Tân là **vị vua lên ngôi nhỏ tuổi nhất** trong 13 vua Nguyễn.
++ Vua **Khải Định** (1916-1925)
+  + Vua Khải Định chỉ có một con trai là Hoàng tử Vĩnh Thụy (vua Bảo Đại).
++ Vua **Bảo Đại** (1926-1945)
+  + Vua Bảo Đại ở ngôi cho đến 30 tháng 8 năm 1945 thì làm lễ thoái vị tại Ngọ Môn, giao chính quyền lại cho Chính phủ Cách mạng Lâm thời.
+  + Chế độ phong kiến chấm dứt, Bảo Đại sang Pháp và sống hết cuộc đời của vị vua lưu vong ở đó. Ông mất ngày 1 tháng 8 năm 1997 tại Pháp.
+
+## Thời kỳ hiện đại (1858–nay)
   + Thời kỳ Pháp thuộc (1858–1945)
   + Thời kỳ Nhật thuộc (1940–1945)
   + Thời kỳ cộng hòa (1945–nay)
@@ -47,69 +116,5 @@
       + Xếp hạng năng lực cạnh tranh quốc gia của Việt Nam do **Diễn đàn Kinh tế Thế giới (WEF)** công bố cho năm **2015–2016**, Việt Nam đứng rất thấp trong khu vực và chỉ đứng thứ 56 trên tổng số 144 nền kinh tế. Nền quản lý hành chính lạc hậu, nhiều thủ tục rườm rà gây ảnh hưởng tiêu cực nghiêm trọng đến năng lực cạnh tranh, chi phí về thời gian và tiền bạc của doanh nghiệp Việt Nam, đơn cử như việc các doanh nghiệp Việt Nam cần đến 872 giờ/năm để đóng thuế trong khi con số bình quân của dịch vụ đó ở các nước ASEAN-6 chỉ là 172 giờ/năm. Thực tế này cho thấy, cải cách thể chế, tái cơ cấu kinh tế, **nâng cao trình độ khoa học – công nghệ** và năng lực cạnh tranh đang là đòi hỏi cấp thiết đặt ra cho Việt Nam trong giai đoạn tới.
       + Tính đến năm 2020, Việt Nam đã thiết lập quan hệ ngoại giao với 189 quốc gia và là thành viên của nhiều tổ chức quốc tế, trong đó nổi bật như: **Liên Hợp Quốc**, **Hiệp hội các quốc gia Đông Nam Á (ASEAN)**, **Diễn đàn Hợp tác Kinh tế Châu Á – Thái Bình Dương (APEC)** và **Tổ chức Thương mại Thế giới (WTO)**.
 
-# Thời kỳ nguyên sử
-+ Hồng Bàng
-+ Nhà Thục (257–208 TCN, hoặc 207–179 TCN)
-+ Nhà Triệu (204–111 TCN)
-
-# Bắc thuộc lần I, II và III
-+ Trưng Nữ Vương (40–43)
-+ Nhà Tiền Lý và Triệu Việt Vương (544–603)
-+ Họ Mai (713–723)
-+ Họ Phùng (779–791)
-
-# Thời kỳ tự chủ lần thứ nhất
-+ Họ Khúc (905–923) hoặc (905–930)
-
-# Thời kỳ tự chủ lần thứ hai
-+ Họ Dương (931–937)
-+ Họ Kiều (937–938)
-
-# Thời kỳ độc lập
-+ Nhà Ngô và Dương Tam Kha (939–966)
-+ Nhà Đinh (968–980)
-+ Nhà Tiền Lê (980–1009)
-+ Nhà Lý (1009–1225)
-+ Nhà Trần (1225–1400)
-+ Nhà Hồ (1400–1407)
-
-# Chống Bắc thuộc lần IV
-+ Nhà Hậu Trần (1407–1414)
-+ Khởi nghĩa Lam Sơn (1418–1427)
-
-# Thời kỳ tái độc lập
-+ Nhà Hậu Lê – giai đoạn Lê sơ (1428–1527)
-
-# Thời kỳ chia cắt
-+ Bắc triều – Nhà Mạc (1527–1592) và thời kỳ Cao Bằng (1592-1683)
-+ Nam triều – Nhà Hậu Lê – giai đoạn Lê Trung hưng (1533–1789)
-+ Đàng Ngoài - Chúa Trịnh (1545-1787)
-+ Đàng Trong - Chúa Nguyễn (1558-1777)
-
-# Triều Nguyễn
-+ Triều đại Phong kiến cuối cùng ở Việt Nam, đã tồn tại trong suốt hơn 143 năm (1802-1945) với 13 đời vua Nguyễn, 9 chúa Nguyễn
-+ Vua Gia Long (1802-1819)*
-  + Ngày 1-2-1802, Nguyễn Phúc Ánh lên ngôi Hoàng đế ở Phú Xuân, lấy niên hiệu là Gia Long, chính thức lập nên triều đại nhà Nguyễn. Tháng 3 năm 1804, vua Gia Long đổi quốc hiệu nước ta là Việt Nam.
-+ Vua Minh Mạng (1820-1840)
-  + Cho bỏ các dinh và trấn mà thành lập các tỉnh (cả nước được chia làm 31 tỉnh)
-  + Nhà vua cho lập Quốc Tử Giám, mở thêm kỳ thi Hội và thi Đình (thời Gia Long chỉ có thi Hương).
-  + Lãnh thổ Việt Nam dưới thời Minh Mạng được mở rộng nhất trong lịch sử và Việt Nam thực sự trở thành một quốc gia hùng mạnh. Vì vậy vào năm 1838, vua Minh Mạng cho đổi tên nước ta là Đại Nam.
-+ Vua Thiệu Trị (1841-1847)
-+ Vua Tự Đức (1848-1883)
-  + Vua Tự Đức không con, ông nhận 3 người cháu gọi bằng chú làm con nuôi là: Nguyễn Phúc Ưng Chân (sau này là vua Dục Đức); Nguyễn Phúc Ưng Đường (sau này là vua Đồng Khánh); Nguyễn Phúc Ưng Đăng (sau này là vua Kiến Phúc).
-+ Vua Dục Đức (1883, 3 ngày)
-+ Vua Hiệp Hòa (1883, 4 tháng)
-+ Vua Kiến Phúc (1883-1884)
-+ Vua Hàm Nghi (1884-1885)*
-  + Binh biến năm Ất Dậu (5-7-1885) xảy ra, vua Hàm Nghi cùng quần thần ra Tân Sở, phát hịch Cần Vương, phát động phong trào kháng Pháp trên toàn quốc.
-+ Vua Đồng Khánh (1886-1888)
-+ Vua Thành Thái (1889-1907)
-  + Vua Thành Thái là người có tư tưởng tiến bộ (cắt tóc ngắn, lái ô tô, xuồng máy) và có tư tưởng chống Pháp.
-+ Vua Duy Tân (1907-1916)
-  + Vua Duy Tân là vị vua lên ngôi nhỏ tuổi nhất trong 13 vua Nguyễn.
-+ Vua Khải Định (1916-1925)
-  + Vua Khải Định chỉ có một con trai là Hoàng tử Vĩnh Thụy (vua Bảo Đại).
-+ Vua Bảo Đại (1926-1945)
-  + Vua Bảo Đại ở ngôi cho đến 30 tháng 8 năm 1945 thì làm lễ thoái vị tại Ngọ Môn, giao chính quyền lại cho Chính phủ Cách mạng Lâm thời.
-  + Chế độ phong kiến chấm dứt, Bảo Đại sang Pháp và sống hết cuộc đời của vị vua lưu vong ở đó. Ông mất ngày 1 tháng 8 năm 1997 tại Pháp.
-Vua Bảo Đại có 5 người con (2 trai, 3 gái).
+# Tham khảo:
++ http://vietycotruyen.com.vn/cac-trieu-dai-viet-nam-qua-tung-thoi-ky-lich-su
